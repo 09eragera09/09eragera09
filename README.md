@@ -1,16 +1,17 @@
-### Hi there 👋
+### Gaurav Gupta
 
-<!--
-**09eragera09/09eragera09** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+For work queries:
+> [era@waifutranslations.com](mailto:era@waifutranslations.com)
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Translator of bad videogames  
+Writer of bad content  
+Developer of bad websites  
+
+Cheap-ish work done for cheap-ish rates. Don't expect too much, I duct tape.  
+Never missed a deadline, don't plan on starting today.
+
+Reach me on:
+> Discord: Era#4669  
+> Twitter: [@09eragera09](https://twitter.com/09eragera09)  
+> Website: [waifutranslations.com](https://waifutranslations.com)
