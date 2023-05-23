@@ -12,6 +12,6 @@ Cheap-ish work done for cheap-ish rates. Don't expect too much, I duct tape.
 Never missed a deadline, don't plan on starting today.
 
 Reach me on:
-> Discord: Era#4669  
+> Discord: No.  
 > Twitter: [@09eragera09](https://twitter.com/09eragera09)  
 > Website: [waifutranslations.com](https://waifutranslations.com)
